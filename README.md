@@ -1,0 +1,1 @@
+# minehutmc.github.io
